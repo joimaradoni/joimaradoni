@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joimaradoni
-- 👀 I’m interested in Startup Company
+- 👀 I’m Building a Startup Company
 - 🌱 I’m currently learning Project Manager
 - 💞️ I’m looking to collaborate on Startup Company Project
 - 📫 How to reach me please contact to my mail jmginting2@gmail.com
