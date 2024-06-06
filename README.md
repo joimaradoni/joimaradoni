@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @joimaradoni
 - 👀 I’m Building a Startup Company
-- 🌱 I’m currently learning Project Manager
+- 🌱 I’m currently Working as CEO & CTO in my Startup
 - 💞️ I’m looking to collaborate on Startup Company Project
 - 📫 How to reach me please contact to my mail jmginting2@gmail.com
 
